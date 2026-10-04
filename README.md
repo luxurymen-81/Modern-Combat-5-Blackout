@@ -222,4 +222,4 @@ Modern Combat 5: Blackout is provided as a full free version with all features a
 Don't miss out on the action! Download Modern Combat 5: Blackout now and experience the thrill of war games like never before!
 
 ---
-**Last updated:** 2026-10-03 23:37:25 UTC
+**Last updated:** 2026-10-04 05:06:51 UTC
